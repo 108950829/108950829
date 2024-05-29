@@ -7,6 +7,7 @@ Meu nome é Felipe Barbosa
 - Utilizo esse espaço para mnha organização e compartilhamnetos dos meus projetos desenvolvidos
 - Beyfan and Little Monster
 - Adorador de diva pop
+
 ' Why do you deny yourself heaven? Why do consider yourself undeserving? Why? Are you afraid of love? You think it´s not possible for someone like you, but you are the love of my live... '
 
 ### Você entrar em contato comigo 📫

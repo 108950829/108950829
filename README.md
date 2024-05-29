@@ -5,6 +5,8 @@ Meu nome é Felipe Barbosa
 - Estou estudando na Alura
 - Estou me desenvolvendo na linguagem JavaScript
 - Utilizo esse espaço para mnha organização e compartilhamnetos dos meus projetos desenvolvidos
+- Beyfã
+- Adorador de diva pop
 
 ### Você entrar em contato comigo 📫
 

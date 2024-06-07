@@ -1,4 +1,4 @@
-### Boas vindas ao meu perfil 💙
+### Welcome to the Renaissance 🪩
 
 Meu nome é Felipe Barbosa
 
